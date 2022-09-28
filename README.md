@@ -8,5 +8,6 @@
 - 🤝 I’m looking to collaborate with other content creators!
 - ✨ I love innovation and new technologies!
 - 🌱 I’m following new trends in development!
+- can i use the image?
 
 
